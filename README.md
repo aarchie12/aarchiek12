@@ -1,0 +1,1 @@
+The portfolio includes conceptual matte paintings, product and poster advertisements, and a complete branding design for a beverage brand. Each design emphasizes creativity, consistency, and attention to detail while maintaining a clean and professional visual style.
